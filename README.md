@@ -1,0 +1,2 @@
+# Shared-Monero
+Fuck off
